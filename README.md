@@ -1,0 +1,2 @@
+# kuz-sherlari
+kuz oqshomlari
